@@ -1,2 +1,0 @@
-# CCNA ultimate summary
-
